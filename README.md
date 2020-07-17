@@ -1,0 +1,2 @@
+# Game-Updates
+https://discord.com/api/webhooks/733419001220300900/EHZM80HWQgyLtEJMRVQv6xPkVaEFeAQWpnlOjhAosd6R82YXe4KMvUxqZK495P5fev40
